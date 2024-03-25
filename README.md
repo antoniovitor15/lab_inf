@@ -1,1 +1,1 @@
-# Repositorio para atividades/trablhos de ELE - CEFET-MG
+# Repositorio para atividades/trabalhos de ELE - CEFET-MG
